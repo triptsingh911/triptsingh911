@@ -64,4 +64,4 @@ Actively seeking opportunities as:
 ## 📫 Connect With Me
 
 - Email: triptsingh911@gmail.com
-- LinkedIn: (Add link here)
+- LinkedIn: www.linkedin.com/in/tript-singh-363714327
